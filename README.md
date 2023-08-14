@@ -8,11 +8,11 @@ My prior experiences have endowed me with valuable skills in **communication**, 
 
 # What Sets Me Apart ✨
 
-- **Passionate Designer**: I am dedicated to crafting designs that prioritize the user experience. 🎨❤️
-- **Effective Communicator**: With strong interpersonal skills, I ensure smooth collaboration within teams. 🤝🗣️
-- **Fluent in English**: Clear communication is crucial, and my language skills contribute to it. 🌎✍️
-- **Technical Proficiency**: My expertise in technical skills is essential for modern UI/UX design. 💻🔧
-- **Adaptable Learner**: I am a quick learner, readily embracing new challenges and innovations. 🧠🚀
+- **Passionate Designer**: I am dedicated to crafting designs that prioritize the user experience. ❤️
+- **Team Player**: With strong interpersonal skills, I ensure smooth collaboration within teams. 🤝
+- **Technical Proficiency**: Worked with **Figma**, **Photoshop**, **Illustrator**, **InDesign**, **Premiere**, **After Effects**, and **XD**. 💻
+- **Adaptable Learner**: I am a quick learner 🧠, readily embracing new challenges and innovations. 🚀
+- **Fluent in English and Hebrew**. 🌎
 
 ## Portfolio Highlights 🌟
 
