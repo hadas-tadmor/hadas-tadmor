@@ -21,6 +21,6 @@ Here are some examples of my design work:
 - [Website Design for XYZ Company](https://example.com/xyz-website) 🌐🎉
 - [Mobile App Interface for ABC App](https://example.com/abc-app) 📱🚀
 
-Feel free to contact me at [your.email@example.com](mailto:hadas.tzuk@gmail.com) for inquiries or opportunities. I am enthusiastic about contributing to groundbreaking projects and making a lasting impact through design. 📬🌟
+Feel free to contact me at [hadas.tzuk@gmail.com](mailto:hadas.tzuk@gmail.com) for inquiries or opportunities. I am enthusiastic about contributing to groundbreaking projects and making a lasting impact through design. 📬🌟
 
 Looking forward to connecting and exploring new horizons! 🚀🌈
